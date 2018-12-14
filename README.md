@@ -1,1 +1,1 @@
-http://woai.hapiyou.cn/games/663?channel_id=14
+http://h5ly.hapiyou.cn/rigorous.php
